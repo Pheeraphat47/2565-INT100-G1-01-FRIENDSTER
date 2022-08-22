@@ -1,18 +1,24 @@
-# กาย
+# ✨ กาย ✨
 [![รูปกาย](https://cdn.discordapp.com/attachments/1009828568165011654/1011247235780051034/unknown.png)](https://www.instagram.com/guy.pyt/?hl=th)
-ชื่อ: ภูธร เพ็ชรโยธา
 
-อายุ: 19 ปี
+🎈**ชื่อเล่น** : กาย
+
+🕊️**ชื่อ** : ภูธร เพ็ชรโยธา
+
+🔅**อายุ** : 19
+
+🎂**วันเดือนปีเกิด**: 30/05/2546 
 
 
-วันเดือนปีเกิด: 30/05/2546
+🛹**งานอดิเรก**
+1. ดูหนัง  
+2. ฟังเพลง
 
-### อาหารชอบ
-1. ข้าวหมูกรอบ
+🍕**อาหารชอบ**
+1. ข้าวหมูกรอบ 
 2. ข้าวผัดกะเพรา
 
-
-*ig  [guy.pyt](https://www.instagram.com/guy.pyt/?hl=th)*
+✌**ig** : *[guy.pyt](https://www.instagram.com/guy.pyt/?hl=th)*
 
 
 # 🌿 ใบหม่อน 🌿
@@ -36,6 +42,7 @@
 * ไก่ทอด
 * ข้าวผัดกระเพรา
 * พุดดิ้ง
+
 👉🏻 **IG** : *[Baimon](https://www.instagram.com/samoyed_narukk/)*
 
 
@@ -50,6 +57,7 @@
 4. ข้าวกับไข่ตุ๋น
 
 IG:[_chai.ya.pron_](https://www.instagram.com/_chai.ya.pron_/)
+
 
 
 
