@@ -1,5 +1,5 @@
 # อาร์ม
-![124421](https://user-images.githubusercontent.com/110714179/185802769-88a2836f-0f9c-436a-838e-14252f02dd33.jpg)
+https://media.discordapp.net/attachments/1009828568165011652/1011265939834142811/2016A0C1-AA7E-46D7-A908-7973FF0E4484.jpg?width=553&height=675
 ชื่อ: 
 
 ### งานอดิเรก
