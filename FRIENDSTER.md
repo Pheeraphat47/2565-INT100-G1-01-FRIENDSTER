@@ -15,7 +15,7 @@
 * ส้มตำ
 
 
-### IG : nckk.armaeng (https://www.instagram.com/nckk.armaeng/)
-IG:[_chai.ya.pron_](https://www.instagram.com/_chai.ya.pron_/)
+### IG : [nckk.armaeng](https://www.instagram.com/nckk.armaeng/)
+
 
 
