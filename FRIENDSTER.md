@@ -9,4 +9,4 @@ https://cdn.discordapp.com/attachments/1009828568165011652/1011265939834142811/2
 3. ข้าวคลุกไข่ต้ม    
 4. ข้าวกับไข่ตุ๋น
 
-IG:[_chai.ya.pron_](https://www.instagram.com/_chai.ya.pron_/)
+IG:[nckk.armaeng]
