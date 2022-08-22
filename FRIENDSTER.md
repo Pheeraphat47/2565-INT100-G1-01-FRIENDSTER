@@ -10,3 +10,5 @@ https://cdn.discordapp.com/attachments/1009828568165011652/1011265939834142811/2
 4. ข้าวกับไข่ตุ๋น
 
 IG:[nckk.armaeng]
+
+![Baimon](https://cdn.discordapp.com/attachments/1010970264177221742/1011250318891302922/S__13377555.jpg)
