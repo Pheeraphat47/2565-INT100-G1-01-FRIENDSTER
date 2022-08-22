@@ -1,5 +1,5 @@
 # ฮาร์ท
-
+![124421](https://user-images.githubusercontent.com/110714179/185802769-88a2836f-0f9c-436a-838e-14252f02dd33.jpg)
 ชื่อ: พรชัย แก้วกระบิล
 
 อายุ: 18
@@ -14,8 +14,8 @@
 3. ข้าวคลุกไข่ต้ม    
 4. ข้าวกับไข่ตุ๋น
 
-IG: https://www.instagram.com/_chai.ya.pron_/
+IG:[_chai.ya.pron_](https://www.instagram.com/_chai.ya.pron_/)
 
-![124421](https://user-images.githubusercontent.com/110714179/185802769-88a2836f-0f9c-436a-838e-14252f02dd33.jpg)
+
 
 
