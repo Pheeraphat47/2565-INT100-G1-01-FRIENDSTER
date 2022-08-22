@@ -82,3 +82,22 @@ IG:[_chai.ya.pron_](https://www.instagram.com/_chai.ya.pron_/)
 
 ig  [yadajen](https://instagram.com/yadajen?igshid=YmMyMTA2M2Y=)
 
+# พี 🦁
+---
+![Alt Text](https://media.discordapp.net/attachments/1011254484229427301/1011256195396403220/296584495_480764453382632_7935728161928045272_n.jpg?width=1238&height=825)
+
+> ชื่อเล่น : พี  
+
+> ชื่อจริง : พีรพัฒน์ ธีรชัยศุภกิจ
+## About Pheez ✨
+* อายุ : 18
+* วัน/เดือน/ปีเกิด : 28/04/2547
+### งานอดิเรก :
+* เล่นเกม 🎮
+* เล่นดนตรี 🥁
+* ดูหนัง 🎬
+### อาหารที่ชอบ :
+* ส้มตำ 🍊
+* ต้มยำกุ้ง 🦐
+* ข้าวมันไก่ 🐔
+* ช่องทางติดต่อ : IG 🥣 [phx_pd](https://instagram.com/phx_pd?igshid=YmMyMTA2M2Y=)
