@@ -10,7 +10,7 @@
 1. ข้าวหมูกรอบ
 2. ข้าวผัดกะเพรา
 
-=======
+
 *ig  [guy.pyt](https://www.instagram.com/guy.pyt/?hl=th)*
 
 
