@@ -1,5 +1,5 @@
 # อาร์ม
-(https://cdn.discordapp.com/attachments/1009828568165011652/1011265939834142811/2016A0C1-AA7E-46D7-A908-7973FF0E4484.jpg)
+![Arm](https://cdn.discordapp.com/attachments/1009828568165011652/1011265939834142811/2016A0C1-AA7E-46D7-A908-7973FF0E4484.jpg)
 ชื่อ: 
 
 ### งานอดิเรก
