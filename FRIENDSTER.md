@@ -1,5 +1,5 @@
 # อาร์ม
-https://cdn.discordapp.com/attachments/1009828568165011652/1011265939834142811/2016A0C1-AA7E-46D7-A908-7973FF0E4484.jpg
+(https://cdn.discordapp.com/attachments/1009828568165011652/1011265939834142811/2016A0C1-AA7E-46D7-A908-7973FF0E4484.jpg)
 ชื่อ: 
 
 ### งานอดิเรก
@@ -11,4 +11,4 @@ https://cdn.discordapp.com/attachments/1009828568165011652/1011265939834142811/2
 
 IG:[nckk.armaeng]
 
-![Baimon](https://cdn.discordapp.com/attachments/1010970264177221742/1011250318891302922/S__13377555.jpg)
+
