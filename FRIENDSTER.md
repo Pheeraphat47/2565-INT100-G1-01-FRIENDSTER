@@ -13,8 +13,6 @@
 * พิซซ่า 
 * สปาเกตตี้คาโบนาร่า
 * ส้มตำ
-
-
 ### IG : [nckk.armaeng](https://www.instagram.com/nckk.armaeng/)
 
 
